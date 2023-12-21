@@ -1,6 +1,6 @@
 ### Hiya 👋
 
-Singer-songwriter //
+[Singer-songwriter](https://anjie.bandcamp.com/) //
 Neurobiology researcher //
 Coding enthusiast
 
